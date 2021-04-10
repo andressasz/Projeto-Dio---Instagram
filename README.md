@@ -2,4 +2,4 @@
 
 Gratidão ao pessoal da Digital Innovation One <3
 
-Muito legal poder reciar a inteface do Instagram! Super linda! 📸
+Muito legal poder recriar a interface do Instagram! Super linda! 📸
